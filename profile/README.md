@@ -1,1 +1,1 @@
-![](https://cdn.cheapvacations.club/banner.png)
+![](https://cdn.cheapvacations.club/banner-tagline.png)
